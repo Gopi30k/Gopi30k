@@ -1,3 +1,3 @@
-## `Hey Peeps!👋  I'm Gopi` 
+## Hey👋  I'm Gopi
 
 
